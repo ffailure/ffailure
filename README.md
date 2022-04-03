@@ -1,4 +1,4 @@
-if ur from <a href="https://pony.town">pony town</a> , please read <a href="https://patreon.com/potatsu">this</a> .
+if ur from <a href="https://pony.town">pony town</a> , please read <a href="https://patreon.com/potatsu">this</a> and <a href="https://r.mtdv.me/failure">this</a> .
 <br></br>
 <br></br>
 <br></br>
